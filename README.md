@@ -6,7 +6,15 @@
 - 👨‍🚀🛰 I'm a Space Enthusiast. 
 - 🤖🦾🦿 I'm a IoT - Robotics Maker.
 
+- 🏅👨🏻‍💻 Professional Test Score 📝 : 
+
+- MAH MCA-CET 2019 Score : 80 ~ 94.37% 
+
+- Institute Level First Rank Holder in MAH MCA-CET from overall PCACS Bachelors og Sciemce Information Technology Aspirants.
+
 - 🎓🏆🏅🎖 Awards & Achievements :
+
+- 🏆🏅 Awarded honour with 3rd Rank Holder in overall Second Semester Examination of Diploma in Computer Engineering.
 
 - 🏆🏅 Participated in 12th Inter-University Avishkar Research Convention 2017-2018 with Project Entitled "SoS –Save Our Soul Mobile Application" reached till Zonal Level.
 	(Team Member's - 01.Dhanesh Lakshmish Walgalli 02. Sujit Prakash Tadadikar.)
